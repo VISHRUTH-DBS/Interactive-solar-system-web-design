@@ -1,1 +1,0 @@
-# Interactive-solar-system-web-design
